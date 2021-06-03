@@ -1,0 +1,1 @@
+# Geopolitical-analysis-for-mahindra
